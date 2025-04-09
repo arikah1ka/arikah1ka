@@ -2,7 +2,7 @@
 - 👀 I’m interested in c++
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me - telegram: https://t.me/q1onee
+- 📫 How to reach me - telegram: https://t.me/mistinhead
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 17 y.o reach to game devolopment
 
